@@ -1,16 +1,19 @@
-### Hi there 👋
+### Heyyy I'm glass
+-----------------
+🇺🇦 #FreeUkraine🇺🇦
+-----------------
+```
+- Currently trying not to unalive
+- Learning C & nodeJS
+- CatMafia enjoyer
+- Friends with @Deltara and @Sparkster. We made SnooCockBot (If it ain't python, it ain't running; Starterpack v3; Your mom; Arch sucks.)
 
-<!--
-**Glass-Paramedic/Glass-Paramedic** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
-
-Here are some ideas to get you started:
-
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+ ___________________
+< Glass is retarded >
+ -------------------
+        \   ^__^
+         \  (oo)\_______
+            (__)\       )\/\
+                ||----w |
+                ||     ||
+```
