@@ -1,6 +1,6 @@
 ### Heyyy I'm glass
 -----------------
-🇺🇦 #FreeUkraine🇺🇦
+🇺🇦 SaveUkraine 🇺🇦
 -----------------
 ```
 - Currently trying not to unalive
